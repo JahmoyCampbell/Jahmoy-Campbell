@@ -23,4 +23,4 @@ Cybersecurity student at UTech Jamaica, building practical skills through labs, 
 - LinkedIn: [Jahmoy Campbell](https://www.linkedin.com/in/jahmoy-campbell-38aa56379)
 - Email: Campbelljahmoy7@gmail.com
 
-*Open to cybersecurity internship opportunities.*
+*Open to internship opportunities.*
